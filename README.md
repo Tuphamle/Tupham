@@ -1,2 +1,2 @@
 # Tupham
-ảomalazada
+aomalazada
